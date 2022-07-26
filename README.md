@@ -11,5 +11,4 @@ I'm:
     ⭐Also curious about cybersecurity and pentesting
     ⭐In Love with teaching.
     ⭐So much into watching football on free times.
-I smile a lot😎
  
